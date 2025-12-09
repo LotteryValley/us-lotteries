@@ -6,11 +6,15 @@ Welcome to the **U.S. Lotteries Hub**! This repository serves as a central porta
 
 Here are the biggest multi-state games in the U.S.:
 
-- [Powerball Results](https://www.lotteryvalley.com/usa/games/powerball) – Check the latest winning numbers and draw results.  
-- [Mega Millions Results](https://www.lotteryvalley.com/usa/games/mega-millions) – Get the current numbers and winning combinations.  
-- [Cash4Life Results](https://www.lotteryvalley.com/usa/games/cash4life) – See the latest multi-state game results.  
-- [Lucky for Life Results](https://www.lotteryvalley.com/usa/games/lucky-for-life) – View the most recent draws and winners.  
-- [2by2 Results](https://www.lotteryvalley.com/usa/games/2by2) – Find the latest numbers and draw results.
+- [Powerball Results](https://www.lotteryvalley.com/usa/games/powerball) – Check the latest winning numbers and draw results for Powerball.
+- [Mega Millions Results](https://www.lotteryvalley.com/usa/games/mega-millions) – Check the latest winning numbers and draw results for Mega Millions.
+- [Cash4Life Results](https://www.lotteryvalley.com/usa/games/cash4life) – Check the latest winning numbers and draw results for Cash4Life.
+- [Lucky for Life Results](https://www.lotteryvalley.com/usa/games/lucky-for-life) – Check the latest winning numbers and draw results for Lucky for Life.
+- [2by2 Results](https://www.lotteryvalley.com/usa/games/2by2) – Check the latest winning numbers and draw results for 2by2.
+- [Lotto America Results](https://www.lotteryvalley.com/usa/games/lotto-america) – Check the latest winning numbers and draw results for Lotto America.
+- [Tri-State Megabucks Results](https://www.lotteryvalley.com/usa/games/tristate-megabucks) – Check the latest winning numbers and draw results for Tri-State Megabucks.
+- [Tri-State Gimme 5 Results](https://www.lotteryvalley.com/usa/games/gimme-5) – Check the latest winning numbers and draw results for Tri-State Gimme 5.
+
 
 ## All U.S. State Lotteries
 
