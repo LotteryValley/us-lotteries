@@ -143,7 +143,7 @@ Here's how Jackpot.com's courier service operates:
 
 ## Fees and Pricing
 
-Ticket prices match retail. A $2 Powerball ticket costs $2. Jackpot.com charges a 15% convenience fee on deposits, not individual tickets. Deposit $100, pay $15 total. Use that $100 to buy 50 tickets at $2 each.
+Ticket prices match retail. A $2 Powerball ticket costs $2. Jackpot.com charges a 15% convenience fee on deposits, not individual tickets. Deposit $100, pay $15 total. 
 
 No hidden charges. No fees on winnings. The 15% covers purchasing, scanning, secure storage, and customer support.
 
