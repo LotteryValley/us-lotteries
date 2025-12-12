@@ -193,7 +193,7 @@ Lucky for Life runs in Arkansas, Colorado, Massachusetts, and Ohio with a simila
 
 ## Getting Started
 
-Visit [Lottery Valley's Play Online page](https://www.lotteryvalley.com/play-online) to choose your state. Each state page lists available games with current jackpots and next drawing times.
+Visit [Lottery Valley's Play Online Guide](https://www.lotteryvalley.com/play-online) to choose your state. Each state page lists available games with current jackpots and next drawing times.
 
 Create your Jackpot.com account through the state-specific links to ensure proper tracking for the VALLEYLOTTO promo code.
 
