@@ -91,7 +91,7 @@ It's legal in seven states: Arizona, Arkansas, Colorado, Massachusetts, New Jers
 
 ### New York
 
-[Play New York lottery online](https://www.lotteryvalley.com/play-online/new-york) at 18 or older. New York Lotto runs twice weekly. Win 4 and Numbers draw twice daily. Pick 10 offers unique gameplay. Like New Jersey, New York formally licenses courier services.
+[Buy New York lottery tickets online](https://www.lotteryvalley.com/play-online/new-york) at 18 or older. New York Lotto runs twice weekly. Win 4 and Numbers draw twice daily. Pick 10 offers unique gameplay. Like New Jersey, New York formally licenses courier services.
 
 **Available Games:**
 - [Powerball](https://www.lotteryvalley.com/play-online/new-york/powerball) - Drawings Monday, Wednesday, Saturday
