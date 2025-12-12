@@ -6,7 +6,7 @@ As a Jackpot.com partner, [Lottery Valley](https://www.lotteryvalley.com) helps 
 
 ## What is Jackpot.com?
 
-Jackpot.com operates as a licensed lottery courier service. You place an order online. They send someone to an authorized retailer to buy your ticket. You get a scanned copy before the drawing. The physical ticket stays secured until you need it for claiming a prize.
+[Jackpot](https://partners.jackpot.com/visit/?bta=35405&nci=5396) operates as a licensed lottery courier service. You place an order online. They send someone to an authorized retailer to buy your ticket. You get a scanned copy before the drawing. The physical ticket stays secured until you need it for claiming a prize.
 
 It's legal in seven states: Arizona, Arkansas, Colorado, Massachusetts, New Jersey, New York, and Ohio. Each state has its own rules about age requirements and available games.
 
