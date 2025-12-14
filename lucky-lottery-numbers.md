@@ -14,7 +14,7 @@ Start here to explore all lucky number systems:
 
 ---
 
-## ♈ Horoscope Lucky Lottery Numbers
+## Horoscope Lucky Lottery Numbers
 
 Find lucky numbers aligned with your zodiac sign and daily cosmic influences:
 
