@@ -1,6 +1,6 @@
 # Lucky Lottery Numbers Hub
 
-Welcome to the **Lucky Lottery Numbers Hub**! This repository serves as a central portal for discovering lucky numbers based on astrology, numerology, horoscopes, and birthdays — all designed to guide players toward meaningful lottery number selections on **LotteryValley.com**.
+Welcome to the **Lucky Lottery Numbers Hub**! This repository serves as a central portal for discovering lucky numbers based on astrology, numerology, horoscopes, and birthdays — all designed to guide players toward meaningful lottery number selections on [Lottery Valley](https://www.lotteryvalley.com).
 
 This hub is optimized for easy navigation and internal linking to help users (and search engines) explore every lucky-number pathway on [Lottery Valley](https://www.lotteryvalley.com)  in one place.
 
