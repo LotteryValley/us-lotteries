@@ -35,6 +35,104 @@ Find lucky numbers aligned with your zodiac sign and daily cosmic influences:
 * [Aquarius Lucky Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/horoscope/aquarius)
 * [Pisces Lucky Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/horoscope/pisces)
 
+### Zodiac Lottery Variants
+
+#### Aries
+
+* [Aries Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aries-pick-3)
+* [Aries Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aries-pick-4)
+* [Aries Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aries-cash4life)
+* [Aries Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aries-mega-millions)
+* [Aries Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aries-powerball)
+
+#### Taurus
+
+* [Taurus Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/taurus-pick-3)
+* [Taurus Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/taurus-pick-4)
+* [Taurus Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/taurus-cash4life)
+* [Taurus Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/taurus-mega-millions)
+* [Taurus Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/taurus-powerball)
+
+#### Gemini
+
+* [Gemini Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/gemini-pick-3)
+* [Gemini Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/gemini-pick-4)
+* [Gemini Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/gemini-cash4life)
+* [Gemini Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/gemini-mega-millions)
+* [Gemini Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/gemini-powerball)
+
+#### Cancer
+
+* [Cancer Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/cancer-pick-3)
+* [Cancer Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/cancer-pick-4)
+* [Cancer Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/cancer-cash4life)
+* [Cancer Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/cancer-mega-millions)
+* [Cancer Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/cancer-powerball)
+
+#### Leo
+
+* [Leo Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/leo-pick-3)
+* [Leo Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/leo-pick-4)
+* [Leo Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/leo-cash4life)
+* [Leo Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/leo-mega-millions)
+* [Leo Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/leo-powerball)
+
+#### Virgo
+
+* [Virgo Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/virgo-pick-3)
+* [Virgo Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/virgo-pick-4)
+* [Virgo Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/virgo-cash4life)
+* [Virgo Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/virgo-mega-millions)
+* [Virgo Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/virgo-powerball)
+
+#### Libra
+
+* [Libra Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/libra-pick-3)
+* [Libra Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/libra-pick-4)
+* [Libra Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/libra-cash4life)
+* [Libra Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/libra-mega-millions)
+* [Libra Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/libra-powerball)
+
+#### Scorpio
+
+* [Scorpio Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/scorpio-pick-3)
+* [Scorpio Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/scorpio-pick-4)
+* [Scorpio Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/scorpio-cash4life)
+* [Scorpio Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/scorpio-mega-millions)
+* [Scorpio Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/scorpio-powerball)
+
+#### Sagittarius
+
+* [Sagittarius Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/sagittarius-pick-3)
+* [Sagittarius Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/sagittarius-pick-4)
+* [Sagittarius Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/sagittarius-cash4life)
+* [Sagittarius Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/sagittarius-mega-millions)
+* [Sagittarius Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/sagittarius-powerball)
+
+#### Capricorn
+
+* [Capricorn Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/capricorn-pick-3)
+* [Capricorn Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/capricorn-pick-4)
+* [Capricorn Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/capricorn-cash4life)
+* [Capricorn Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/capricorn-mega-millions)
+* [Capricorn Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/capricorn-powerball)
+
+#### Aquarius
+
+* [Aquarius Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aquarius-pick-3)
+* [Aquarius Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aquarius-pick-4)
+* [Aquarius Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aquarius-cash4life)
+* [Aquarius Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aquarius-mega-millions)
+* [Aquarius Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/aquarius-powerball)
+
+#### Pisces
+
+* [Pisces Lucky Pick 3 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/pisces-pick-3)
+* [Pisces Lucky Pick 4 Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/pisces-pick-4)
+* [Pisces Lucky Cash4Life Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/pisces-cash4life)
+* [Pisces Lucky Mega Millions Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/pisces-mega-millions)
+* [Pisces Lucky Powerball Numbers](https://www.lotteryvalley.com/lucky-lottery-numbers/pisces-powerball)
+
 ---
 
 ## 🔢 Numerology Lucky Lottery Numbers
